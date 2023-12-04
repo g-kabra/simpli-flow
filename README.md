@@ -6,7 +6,7 @@ Simpli Flow is an all-in-one solution designed to revolutionize blockchain inter
 
 </div>
 
-> Read more [here](https://www.canva.com/design/DAFozPhX16g/odBtDJdgRgdFohjFqJycqA/view?utm_content=DAFozPhX16g&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+> Read more [here](https://www.canva.com/design/DAFsGFZKCy0/ePy4HqV-3sCrE9KXAP51VQ/edit)
 
 ## Features
 
